@@ -1,2 +1,11 @@
-# sigma
-sigma
+                               Fandom!!
+![image](https://github.com/user-attachments/assets/ce775a88-8e8c-4e6a-a4ae-8f35a3e76401)
+![image](https://github.com/user-attachments/assets/f7d25a13-2c69-42d2-8907-58c094ce8557)![image](https://github.com/user-attachments/assets/f7d25a13-2c69-42d2-8907-58c094ce8557)
+![image](https://github.com/user-attachments/assets/dda4b277-6721-40fe-b91a-e985545452b5)
+![image](https://github.com/user-attachments/assets/f7d25a13-2c69-42d2-8907-58c094ce8557)![image](https://github.com/user-attachments/assets/f7d25a13-2c69-42d2-8907-58c094ce8557)
+![image](https://github.com/user-attachments/assets/ccfc7c8e-6db1-44cd-b693-997865eff87c)
+![image](https://github.com/user-attachments/assets/f7d25a13-2c69-42d2-8907-58c094ce8557)![image](https://github.com/user-attachments/assets/f7d25a13-2c69-42d2-8907-58c094ce8557)
+![image](https://github.com/user-attachments/assets/8a866cad-e8fa-4aa9-a81d-5a0e5e2a4a24)
+![image](https://github.com/user-attachments/assets/f7d25a13-2c69-42d2-8907-58c094ce8557)![image](https://github.com/user-attachments/assets/f7d25a13-2c69-42d2-8907-58c094ce8557)
+![image](https://github.com/user-attachments/assets/71959232-f1fe-404f-9b3c-245c0bcaeb97)
+![image](https://github.com/user-attachments/assets/f7d25a13-2c69-42d2-8907-58c094ce8557)![image](https://github.com/user-attachments/assets/f7d25a13-2c69-42d2-8907-58c094ce8557)
